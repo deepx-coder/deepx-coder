@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @deepx-coder
-- 📫 How to reach me contact@deepxnet.com
+- 📫 How to reach me contact@deepxnet.com || shubhadeep.acc@gmail.com
 - 🌐 Websites - https://deepxnet.com && https://insload.com 
 
 <!---
